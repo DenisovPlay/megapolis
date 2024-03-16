@@ -12,7 +12,37 @@ Run application, then enter link to file located on your computer/server/phone o
 
 
 
+⠀⠀
+⠀
+⠀
 
+⠀
+⠀
+⠀
+⠀
+⠀
+
+⠀
+
+⠀
+⠀
+
+⠀
+⠀
+⠀
+⠀
+
+⠀⠀
+⠀
+
+⠀
+
+⠀
+⠀
+⠀
+⠀
+⠀
+⠀
 
 
 
